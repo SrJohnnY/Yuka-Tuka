@@ -6,4 +6,4 @@ Estou sendo programado no server **[New Devs](https://discord.gg/PfduUW8)**.
 
 
 # Criador
- ![ ![texto](https://prnt.sc/nk1tu6) ](https://google.com/)
+[<img src="http://www.google.com.au/images/nav_logo7.png%22%3E](http://google.com.au/)
